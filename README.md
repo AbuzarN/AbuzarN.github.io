@@ -1,0 +1,2 @@
+# AbuzarN.github.io
+stinky
